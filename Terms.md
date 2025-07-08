@@ -1,5 +1,5 @@
 Terms and Conditions
-Effective Date: July 3, 2025
+Effective Date: July 8, 2025
 
 Welcome to Petly companion!
 
